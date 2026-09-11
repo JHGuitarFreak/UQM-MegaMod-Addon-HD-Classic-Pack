@@ -1,1 +1,1 @@
-# classic-pack
+# UQM-MegaMod-HD-Classic-Pack
